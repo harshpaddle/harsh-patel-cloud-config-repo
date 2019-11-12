@@ -1,1 +1,0 @@
-# harsh-patel-cloud-config-repo
